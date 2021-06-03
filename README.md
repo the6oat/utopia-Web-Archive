@@ -15,6 +15,10 @@ archivo de imagenes
 
 ![Narratively_QAnon_Spot_5](https://user-images.githubusercontent.com/84877781/120717445-d968eb80-c4c7-11eb-8f61-b3adddef0352.jpg)
 
+![avestruz pixel art 666 art 1 unique](https://user-images.githubusercontent.com/84877781/120717813-762b8900-c4c8-11eb-8962-3301958b7131.png)
+
+![100000 fish art 666 art](https://user-images.githubusercontent.com/84877781/120717897-a4a96400-c4c8-11eb-94cf-0fdc6d1b30e7.png)
+
 ![al-juarismi 666art](https://user-images.githubusercontent.com/84877781/120683095-811cf400-c49d-11eb-914f-72e4b80cfc2f.jpg)
 
 
